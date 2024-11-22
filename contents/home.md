@@ -1,6 +1,6 @@
 
 
-[![yingshuoli1073](https://yingshuolee.github.io/yinghsuolee.github.io)](https://github.com/yingshuolee)
+[![yingshuolee](https://yingshuolee.github.io/yinghsuolee.github.io)](https://github.com/yingshuolee)
 
 She is currently pursuing a bachelor's degree in Arts and Technology at Shanghai University of Engineering Science.
 
